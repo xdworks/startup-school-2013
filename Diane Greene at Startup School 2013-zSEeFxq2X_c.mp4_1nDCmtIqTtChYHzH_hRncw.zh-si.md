@@ -2,6 +2,8 @@
 
 *2013年创业学校的黛安·格林-zSEeFxq2X\_c.mp4*
 
+
+
 \[00:00:00\] Hi there. I\'ve been in this auditorium once before. I
 think it was before you were born. It was 1989 and I was working for
 Tandem Computers which was one of the biggest companies in Silicon

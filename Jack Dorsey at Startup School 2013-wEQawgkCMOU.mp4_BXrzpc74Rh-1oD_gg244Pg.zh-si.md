@@ -2,6 +2,8 @@
 
 *2013年创业学校的Jack Dorsey-wEQawgkCMOU.mp4*
 
+
+
 \[00:00:00\] Well this is a huge huge crowd.
 
 [00：00]这可是一大群人。

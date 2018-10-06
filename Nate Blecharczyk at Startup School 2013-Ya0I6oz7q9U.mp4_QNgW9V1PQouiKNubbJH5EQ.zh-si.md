@@ -2,6 +2,8 @@
 
 *2013年创业学校Nate Blecharczyk-Ya0I6oz7q9U.mp4*
 
+
+
 \[00:00:00\] Wow. There are a lot of you.
 
 https://tmt.ap-beijing.tencentcloudapi.com/?Action=TextTranslate&Nonce=1234&ProjectId=1257710951&Region=ap-beijing&SecretId=AKIDPqCXo8hXckompwwu7EB4sWzTvJXboBh2&Source=en&SourceText=%5C%5B00%3A00%3A00%5C%5D+Wow.+There+are+a+lot+of+you.&Target=zh&Timestamp=1538793836&Version=2018-03-21&Signature=qRaezH8OSgeCqDH2Fw0QEgKkcR8=

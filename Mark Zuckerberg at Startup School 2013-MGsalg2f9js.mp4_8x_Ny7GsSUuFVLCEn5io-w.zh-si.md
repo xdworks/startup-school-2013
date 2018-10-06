@@ -2,6 +2,8 @@
 
 *2013年创业学校的马克·扎克伯格-MGsalg2f9js.mp4*
 
+
+
 \[00:00:00\] You know I came out here earlier and they didn\'t clap as
 loud. So it\'s pretty obvious why they were clapping allowed this. That
 was for you.

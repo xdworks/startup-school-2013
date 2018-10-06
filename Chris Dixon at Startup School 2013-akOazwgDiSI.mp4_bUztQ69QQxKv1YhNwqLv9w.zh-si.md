@@ -2,6 +2,8 @@
 
 *2013年创业学校的Chris Dixon-akOazwgDiSI.mp4*
 
+
+
 \[00:00:00\] So today I want to talk about good ideas or look like bad
 ideas. So there\'s a great.
 

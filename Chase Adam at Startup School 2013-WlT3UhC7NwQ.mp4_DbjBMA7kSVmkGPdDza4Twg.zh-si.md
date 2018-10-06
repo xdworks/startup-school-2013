@@ -2,6 +2,8 @@
 
 *Chase Adam在2013年开办学校-WlT3UhC7NwQ.mp4*
 
+
+
 \[00:00:00\] Hi everyone. My name is Chase. And like Jessica said We
 recently had the privilege of being the first nonprofit to go through Y
 Combinator. So to tell you just a quick one minute about Watsky we\'re a

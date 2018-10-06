@@ -2,6 +2,8 @@
 
 *2013年创业学校的Dan Siroker-K4\3 uluQsq4.mp4*
 
+
+
 \[00:00:00\] Thank you. I have the privilege of saying this is my sixth
 Startup School and the first time as a presenter and today I\'m going to
 be sharing with you what I would have wanted to hear of the first five
